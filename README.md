@@ -1,0 +1,70 @@
+# [Alexandros] – I Don't Believe In You
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I don't know what that is
+And
+I don't know what that is
+The feeling jumping up and down in my head
+The clicking noise inside my head
+I don't know what that is
+And
+I don't know what that is
+The pressure pumping up and down in my heart
+The supersonic beat in my heart
+こんがらがったイヤホンケーブルみたいな情報網
+知りたくもない
+触れたくもない
+ご勝手に断線しちゃって
+情報が錯綜し
+何も信じられない時代こそ
+騙されるな
+騙してやれ
+I don't believe in you
+I think my soul is blind
+A will inside my pain
+Yeah my soul is blind
+That's why I am not scared
+I think my soul is blind
+There's a will inside my pain
+Yeah my soul is blind
+That's why I am not
+I don't know what that is
+And
+I don't know what that is
+The feeling jumping up and down in my head
+The clicking noise inside my head
+I don't know what that is
+And
+I don't know what that is
+The pressure pumping up and down in my heart
+The supersonic beat in my heart
+こんがらがったpubic(hair)みたいな人間関係に
+関係無い赤い他人が首を突っ込んでは
+関係者ぶってる
+状況は最悪で
+何もかも失敗した時こそ
+化かされるな
+化かしてやれ
+I don't believe in you
+I think my soul is blind
+A will inside my pain
+Yeah my soul is blind
+That's why I am not scared
+I think my soul is blind
+There's a will inside my pain
+Yeah my soul is blind
+That's why I am not
+I don't believe in fairytales
+I don't need to go to your seminar
+You say I'm wrong but I am right
+For those reasons I have lost all of my fear
+Sky is falling down
+Oceans floating into space
+Could be a chance to win a lottery today
+Sky is falling down
+Oceans floating into space
+Could be a chance to win a lottery today
+I can fly I can fly I can fly
+```
